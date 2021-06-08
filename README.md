@@ -1,1 +1,0 @@
-# raptor-minds.github.io
